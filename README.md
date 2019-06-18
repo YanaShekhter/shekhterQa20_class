@@ -1,0 +1,1 @@
+# shekhterQa20_class
